@@ -1,0 +1,1 @@
+For me this activity was quiet challenging, I'm not really familiar when it comes to this, specifically VS code. But, I can say that it was a nice journey doing this activity because I was able to learn new things with the help of my friends. And I hope that I can continue learning how to do this kinds of things.
